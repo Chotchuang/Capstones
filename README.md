@@ -1,1 +1,1 @@
-# capstone1sql
+# Capstone project from online courses
