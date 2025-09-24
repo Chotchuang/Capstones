@@ -60,19 +60,14 @@ By doing this, she still enjoys the investment game and the thrill of investing 
   Erika should regularly review her past investment records, both good and bad investments, by comparing her actual performance to relevant market benchmarks. She should do it with her advisor (me) to conduct an objective assessment of her results. This will help her understand market factors and reflect the practice for a realistic sense of her investment abilities and risk tolerance in order to avoid risk-taking based on her overconfidence.
 
   ### Although you are lacking some information to precisely determine the investment profile of your client at this point, use their description to make an educated guess of their investment profile between the following propositions:
-
 - Conservative investor
 - Balanced investor
 - Aggressive investor
-
   Erika Kozlov's profile shows that she is an aggressive investor.
 Portfolio allocation: 90% equities with only 10% in bonds and cash.
 Attitude: High risk and reward. She enjoys the excitement and risk of investing in her past success, private investment. She is highly confident in her abilities and shows little fear or concern.
 Behavior: Willing to take concentrated bets and dismisses risk-mitigation advice.
-
   To compare with Davina (Conservative investor) and John (Balanced investor). Erika has more risk tolerance and is an aggressive investor.
-
-
 
   ### In this aspect, try to use an adequate tone when writing your transcript, just like you were speaking to your client.
 
@@ -100,42 +95,3 @@ After reviewing this, I'm highly concerned about your goals that might be impact
   2. To manage overconfidence, we should regularly review our results against market benchmarks to keep our risk-taking in check.
 
 Would you like to discuss how to structure this donation plan or go over your recent investment performance in the next meeting?
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
