@@ -1,4 +1,4 @@
-Client profile: ERIKA KOZLOV
+### Client profile: ERIKA KOZLOV
 
 Starting as a rare woman trader at a bank, Erika Kozlov (49 years old) decided she could be better without the bosses who tried to put her down.  She became a successful investor in private markets (real estate, venture capital) and made a fortune that belies her humble roots.  So far, she has managed to accumulate USD 37 m. Money motivates her and provides a sense of self-worth, which she has in plenty. 
 As she says, “If you've got it, flaunt it!”: A penthouse apartment, Cartier watches, a Bentley convertible, and a Ferrari are the symbols of her success, and she's happy if everyone knows about them. Additionally, spending money is one of the most effective ways to give back to society.  Erika employs a couple of staff, pays her income taxes, and pays plenty of VAT. She has had a string of handsome, eligible boyfriends, but she's too busy doing deals to think of having kids. 
