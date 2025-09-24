@@ -1,1 +1,1 @@
-# Capstone project from online courses
+# Capstone projects by Chotchuang Chotnapalai
